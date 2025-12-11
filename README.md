@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Niraj-Mhatre2003
 - 👀 I’m interested in statistics and mathematics
-- 🌱 I’m currently learning first year at IIT Kanpur.
+- 🌱 I’m currently learning first year Masters at IIT Kanpur.
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me nirajstats@gmail.com
 -
